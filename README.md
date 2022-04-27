@@ -1,2 +1,2 @@
-# -lovinghomesadc.com
+# lovinghomesadc.com
  lovinghomesadc.com
